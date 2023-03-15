@@ -1,1 +1,2 @@
-# Life-Coach
+# Life Coach
+What is a life coach? A life coach is someone who counsels and encourages clients through personal or career challenges. A life coach helps guide clients to reach their ultimate goals. A life coach can help individuals in different areas of their life. But because each human being is different, so will their goals. While therapists are trained mental health professionals who are in the regulated field of healthcare and require licensure, life coaches do not have mental health training and are not equipped to diagnose or treat mental health conditions unless a [life coach](http://coachappnow.com/) was previously trained as a therapist.
